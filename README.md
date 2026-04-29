@@ -59,3 +59,36 @@ But it can be used to **observe, question, and approach truth**.
 ---
 
 This version keeps your idea intact but removes everything unnecessary. If you want it even stricter (like one-page or bullet-only), I can compress it further.
+
+
+
+
+
+
+
+COllection TRACES : 
+
+The book of the LA SOUNDS SEEMS NORMAL But all are collected and shared here itself which is stored as per the information which is given!
+these are saved in the channels and this is one of the example!>
+there are many of the other pdf's also.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
