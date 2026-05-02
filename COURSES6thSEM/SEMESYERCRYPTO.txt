@@ -16,3 +16,8 @@ Mike Rosulek, The Joy of Cryptography
 Jonathan Katz and Yehuda Lindell, Introduction to Modern Cryptography
 
 Oded Goldreich, Foundations of cryptography, Volume 1 (This book is difficult to read. I won't recommend reading it in the beginning. I will mention in the class which topics to read from this book).
+
+
+
+CRYPTO : https://www.noahsdcom/crypto_lecture_notes.html
+https://mit6875.github.io/
