@@ -1,4 +1,4 @@
-For **Graphics for Design**, from your **Computer Science / visualization / UI / creative computing perspective**, you want books around digital graphics, visual communication, computer graphics, interface design, and design systems.
+https://chatgpt.com/share/6a06d8f0-a09c-83a4-8246-5adc95a81986
 
 # Best Search Phrases for Your Library
 
